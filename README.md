@@ -15,6 +15,12 @@
 
 1. 학교소개
 
+[호그와트 나무위키](https://namu.wiki/w/호그와트)
+
+![호그와트 사진1](https://image-proxy.namuwikiusercontent.com/r/http%3A%2F%2Fvignette2.wikia.nocookie.net%2Fharrypotter%2Fimages%2F0%2F04%2FHogwarts.jpg)
+
+![호그와트 사진2](https://image-proxy.namuwikiusercontent.com/r/http%3A%2F%2Fvignette3.wikia.nocookie.net%2Fharrypotter%2Fimages%2F8%2F83%2F1995_Welcoming_feast_2.jpg)
+
 >**”Anyone with a magical power is qualified to Hogwarts”**
 
 >>”마법능력을 가진 사람이라면 그 누구라도 호그와트에 입학할 자격이 있습니다"
